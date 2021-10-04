@@ -1,4 +1,4 @@
-## Olá!!! sou o Jonatas Ferreira, um cara que ama tecnologia!
+## Olá!!! sou o Jonatas Ferreira, um cara que ama tecnologia!!! ❤️✔️🤓
 
 <div align="center">
   <a href="https://github.com/jonatasferreirajk">
